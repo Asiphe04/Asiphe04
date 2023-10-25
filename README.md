@@ -1,6 +1,9 @@
 ### Hi there 👋
 
-I'm Asiphe Ndimlana
+##I'm Asiphe Ndimlana - a dreamer, creator and enthusiast
+
+![Profile 1](https://i.postimg.cc/bY4hd7h9/IMG-20230420-WA0018.jpg)
+<br></br>
 
 <!--
 **Asiphe04/Asiphe04** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
