@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-##I'm Asiphe Ndimlana - a dreamer, creator and enthusiast
+## I'm Asiphe Ndimlana - a dreamer, creator and enthusiast
 
 ![Profile 1](https://i.postimg.cc/bY4hd7h9/IMG-20230420-WA0018.jpg)
 <br></br>
